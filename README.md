@@ -1,9 +1,2 @@
+<img src="https://i.pinimg.com/736x/ac/4f/ef/ac4fef1316351fece6a35843598e44a3.jpg" alt="Story pin image"/>
 
-
-
-
-
-<!---
-mybrainisrotting/mybrainisrotting is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
