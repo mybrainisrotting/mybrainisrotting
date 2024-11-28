@@ -8,7 +8,7 @@
 
 
 
-𝘸𝘩𝘦𝘳𝘦 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘧𝘪𝘯𝘥 𝘮𝘦?
+𝘸𝘩𝘦𝘳𝘦 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘧𝘪𝘯𝘥 𝘮𝘦
 
 ![image](https://github.com/user-attachments/assets/88c3d864-6598-4bb2-a116-9a259a6e818a)
 
