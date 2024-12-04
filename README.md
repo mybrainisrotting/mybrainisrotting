@@ -1,38 +1,34 @@
-![image](https://github.com/user-attachments/assets/e118eb70-1332-4894-99be-94c306813cf7)
+![image](https://github.com/user-attachments/assets/315552ae-62c7-4517-b360-df12c5f8f799)
 
-<img src="https://media.tenor.com/l9Fcn-zeKPsAAAAM/divider.gif" alt="a black and white striped background that looks like a wave"/><img src="https://media.tenor.com/l9Fcn-zeKPsAAAAM/divider.gif" alt="a black and white striped background that looks like a wave"/>
+<img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/><img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/>
 
+𝗼𝗸𝗸 𝘀𝗼𝗺𝗲 𝗯𝗮𝘀𝗶𝗰 𝘁𝗵𝗶𝗻𝗴𝘀 𝗮𝗯𝘁 𝗺𝗲 ummm, i can be really flirty 𝘿𝙀𝙋𝙀𝙉𝘿𝙄𝙉𝙂 on age and how close we are if it makes you uncomfortable please tell me
+i tend to make adult jokes 𝗔𝗟𝗦𝗢 depending on age
 
-
-![image](https://github.com/user-attachments/assets/cd526d2b-320b-4e7d-8943-cadb9c777781)
-
-
-
-𝘸𝘩𝘦𝘳𝘦 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘧𝘪𝘯𝘥 𝘮𝘦
-
-![image](https://github.com/user-attachments/assets/88c3d864-6598-4bb2-a116-9a259a6e818a)
-
-𝘕𝘰𝘳𝘮𝘢𝘭𝘭𝘺 𝘪𝘮 𝘢𝘵 𝘴𝘱𝘢𝘸𝘯 𝘪𝘯 𝘴𝘰𝘶𝘵𝘩 𝘱𝘢𝘳𝘬 𝘢𝘳𝘦𝘢 𝘣𝘶𝘵 𝘵𝘩𝘢𝘵 𝘴𝘸𝘪𝘵𝘤𝘩𝘦𝘴 𝘶𝘱 𝘦𝘷𝘦𝘳𝘺 𝘰𝘧𝘵𝘦𝘯
-<img src="https://media.tenor.com/GcoWPq-7AkkAAAAi/divider-rainbow.gif" alt="a rainbow of colors is dripping down a white surface ."/>
-
-<img src="https://media.tenor.com/VB4xoqsk_3EAAAAj/red-gif.gif" alt="a white background with a red border that says &#39; i &#39;m sorry &#39; on it"/><img src="https://media.tenor.com/VB4xoqsk_3EAAAAj/red-gif.gif" alt="a white background with a red border that says &#39; i &#39;m sorry &#39; on it"/>
-
-
-𝘪𝘮 𝘦𝘪𝘵𝘩𝘦𝘳 𝘢𝘵 𝘵𝘩𝘦 𝘣𝘢𝘬𝘦𝘳𝘺 𝘩𝘢𝘯𝘨𝘪𝘯𝘨 𝘰𝘶𝘵 𝘸𝘪𝘵𝘩 𝘷𝘳𝘰 𝘰𝘳 𝘪𝘮 𝘢𝘵 𝘥𝘸/𝘳𝘦𝘨 𝘢𝘳𝘦𝘢
-
-𝘰𝘳 𝘪𝘮 𝘦𝘪𝘵𝘩𝘦𝘳 𝘢𝘵 𝘵𝘩𝘦 𝘮𝘢𝘳𝘬𝘦𝘵 𝘰𝘳 𝘢𝘳𝘰𝘶𝘯𝘥 𝘱𝘫𝘴𝘬 𝘢𝘳𝘦𝘢 𝘸𝘪𝘵𝘩 𝘮𝘢𝘳𝘫𝘪
-![image](https://github.com/user-attachments/assets/f1a0dd49-c0bc-4ab9-8103-75086df7e603)<img src="https://media.tenor.com/GcoWPq-7AkkAAAAi/divider-rainbow.gif" alt="a rainbow of colors is dripping down a white surface ."/>
-
-
-<img src="https://media.tenor.com/aPllE2_Ru2oAAAAj/divider.gif" alt="a black and white image of a fence with a shadow on it"/>!<img src="https://media.tenor.com/aPllE2_Ru2oAAAAj/divider.gif" alt="a black and white image of a fence with a shadow on it"/><img src="https://media.tenor.com/aPllE2_Ru2oAAAAj/divider.gif" alt="a black and white image of a fence with a shadow on it"/>!
+<img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/><img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/><img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/>
 
 
 
+i have to take medicaation for my anger and other stuff so sometimes i might be dry or upset cuz i havent took my pill yet
+
+<img src="https://media.tenor.com/hf6Y0QFVrsEAAAAj/blood-drip-blood.gif" alt="a row of red spikes on a white background ."/><img src="https://media.tenor.com/hf6Y0QFVrsEAAAAj/blood-drip-blood.gif" alt="a row of red spikes on a white background ."/>
+
+![image](https://github.com/user-attachments/assets/ed3c0dcc-68dd-4f0a-9759-5f4ab93233ce)
 
 
-𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙘+𝙝 𝙤𝙧 𝙞𝙣𝙩 𝙖𝙣𝙮𝙩𝙞𝙢𝙚! 𝙞 𝙙𝙤𝙣𝙩 𝙘𝙖𝙧𝙚 𝙨𝙞𝙣𝙘𝙚 𝙢𝙤𝙨𝙩 𝙤𝙛 𝙩𝙝𝙚 𝙩𝙞𝙢𝙚 𝙞𝙢 𝙚𝙞𝙩𝙝𝙚𝙧 𝙖𝙛𝙠 𝙤𝙧 𝙝𝙖𝙣𝙜𝙞𝙣𝙜 𝙤𝙪𝙩 𝙬𝙞𝙩𝙝 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙞𝙛 𝙮𝙤𝙪𝙙 𝙡𝙞𝙠𝙚 𝙩𝙤 𝙞𝙣𝙩 𝙬𝙝𝙞𝙨𝙥𝙚𝙧 𝙢𝙚 𝙖𝙨 𝙞 𝙢𝙞𝙜𝙝𝙩 𝙗𝙚 𝙤𝙛𝙛𝙩𝙖𝙗 𝙞𝙛 𝙞 𝙨𝙚𝙚 𝙩𝙝𝙚 𝙬𝙝𝙞𝙨𝙥𝙚𝙧 𝙞𝙡𝙡 𝙘𝙤𝙢𝙚 𝙗𝙖𝙘𝙠 𝙤𝙣 𝙩𝙝𝙚 𝙜𝙖𝙢𝙚 𝙞𝙢 𝙢𝙤𝙧𝙚 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙩𝙖𝙡𝙠/𝙞𝙛 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙨𝙖𝙙 𝙤𝙧 𝙛𝙚𝙚𝙡𝙞𝙣𝙜 𝙪𝙥𝙨𝙚𝙩 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙢𝙤𝙧𝙚 𝙩𝙝𝙖𝙣 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙫𝙚𝙣𝙩
+i joke around alot so if i say smth mean pleasee DO NOT take it personal
 
-![image](https://github.com/user-attachments/assets/16f14ede-29f2-4a90-a4e2-2799aad24f9a)
+<img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/>
+
+ermmm i lowkey think thats it uhh more info in my rentry or patreon if im not rmking them
+
+![image](https://github.com/user-attachments/assets/1ea1d450-d5bd-4f3e-b0e6-651ed3adb19e)![image](https://github.com/user-attachments/assets/916aa5b8-8956-4e89-a68d-e3c7775db259)
+
+
+
+<img src="https://media.discordapp.net/attachments/1068757828149452874/1313686035456065616/1d19a616655d2896ed2a7a4bc70c1463_1.jpg?ex=675108f5&amp;is=674fb775&amp;hm=8c031e398d8a4c221f2d43d3db5553c50cf68fd5d08c74b7e52f8dd3330d4104&amp;=&amp;format=webp&amp;width=438&amp;height=421" alt="Image"/>
+
+![image](https://github.com/user-attachments/assets/f405e37b-65c2-412e-9078-60e8acd30d2a)
 
 
 
