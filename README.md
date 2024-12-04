@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/315552ae-62c7-4517-b360-df12c5f8f799)
-
+![image](https://github.com/user-attachments/assets/315552ae-62c7-4517-b360-df12c5f8f799) 
 <img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/><img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/>
 
 𝗼𝗸𝗸 𝘀𝗼𝗺𝗲 𝗯𝗮𝘀𝗶𝗰 𝘁𝗵𝗶𝗻𝗴𝘀 𝗮𝗯𝘁 𝗺𝗲 ummm, i can be really flirty 𝘿𝙀𝙋𝙀𝙉𝘿𝙄𝙉𝙂 on age and how close we are if it makes you uncomfortable please tell me
@@ -23,8 +22,6 @@ i joke around alot so if i say smth mean pleasee DO NOT take it personal
 ermmm i lowkey think thats it uhh more info in my rentry or patreon if im not rmking them
 
 ![image](https://github.com/user-attachments/assets/1ea1d450-d5bd-4f3e-b0e6-651ed3adb19e)![image](https://github.com/user-attachments/assets/916aa5b8-8956-4e89-a68d-e3c7775db259)
-
-
 
 <img src="https://media.discordapp.net/attachments/1068757828149452874/1313686035456065616/1d19a616655d2896ed2a7a4bc70c1463_1.jpg?ex=675108f5&amp;is=674fb775&amp;hm=8c031e398d8a4c221f2d43d3db5553c50cf68fd5d08c74b7e52f8dd3330d4104&amp;=&amp;format=webp&amp;width=438&amp;height=421" alt="Image"/>
 
