@@ -1,21 +1,20 @@
 ![image](https://github.com/user-attachments/assets/315552ae-62c7-4517-b360-df12c5f8f799) 
 <img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/><img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/>
 
-𝗼𝗸𝗸 𝘀𝗼𝗺𝗲 𝗯𝗮𝘀𝗶𝗰 𝘁𝗵𝗶𝗻𝗴𝘀 𝗮𝗯𝘁 𝗺𝗲 ummm, i can be really flirty 𝘿𝙀𝙋𝙀𝙉𝘿𝙄𝙉𝙂 on age and how close we are if it makes you uncomfortable please tell me
-i tend to make adult jokes 𝗔𝗟𝗦𝗢 depending on age
+where can you find me?
 
 <img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/><img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/><img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/>
 
 
 
-i have to take medicaation for my anger and other stuff so sometimes i might be dry or upset cuz i havent took my pill yet
+mostly above spawn in south park area but this might not always be where you can find me 
 
 <img src="https://media.tenor.com/hf6Y0QFVrsEAAAAj/blood-drip-blood.gif" alt="a row of red spikes on a white background ."/><img src="https://media.tenor.com/hf6Y0QFVrsEAAAAj/blood-drip-blood.gif" alt="a row of red spikes on a white background ."/>
 
 ![image](https://github.com/user-attachments/assets/ed3c0dcc-68dd-4f0a-9759-5f4ab93233ce)
 
 
-i joke around alot so if i say smth mean pleasee DO NOT take it personal
+uhh im either around market or reg/dw area or in the bakery with with vro ! (@Auggiecore)
 
 <img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/>
 
