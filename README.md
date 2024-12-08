@@ -1,5 +1,7 @@
 ![image](https://github.com/user-attachments/assets/315552ae-62c7-4517-b360-df12c5f8f799) 
-<img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/><img src="https://media.tenor.com/VWaAeb6PypoAAAAj/divider.gif" alt="a black and white drawing of a chain with spikes on it"/>
+
+![image](https://github.com/user-attachments/assets/8f4bf245-5040-42dc-aef7-abef212a1265)
+
 
 where can you find me?
 
@@ -20,11 +22,13 @@ uhh im either around market or reg/dw area or in the bakery with with vro ! (@Au
 
 ermmm i lowkey think thats it uhh more info in my rentry or patreon if im not rmking them
 
-![image](https://github.com/user-attachments/assets/1ea1d450-d5bd-4f3e-b0e6-651ed3adb19e)![image](https://github.com/user-attachments/assets/916aa5b8-8956-4e89-a68d-e3c7775db259)
+![image](https://github.com/user-attachments/assets/5a22294b-11e1-468e-9dc9-f8de70f20cd7)
 
-<img src="https://media.discordapp.net/attachments/1068757828149452874/1313686035456065616/1d19a616655d2896ed2a7a4bc70c1463_1.jpg?ex=675108f5&amp;is=674fb775&amp;hm=8c031e398d8a4c221f2d43d3db5553c50cf68fd5d08c74b7e52f8dd3330d4104&amp;=&amp;format=webp&amp;width=438&amp;height=421" alt="Image"/>
+<img src="https://i.pinimg.com/736x/47/c6/ab/47c6ab6b76d618bc44683c64f3157a87.jpg" alt="This may contain: a drawing of a person eating french fries"/>
 
-![image](https://github.com/user-attachments/assets/f405e37b-65c2-412e-9078-60e8acd30d2a)
+![image](https://github.com/user-attachments/assets/c27049c8-0c16-4ca2-812c-b0b2d3c2018c)
+
+
 
 
 
