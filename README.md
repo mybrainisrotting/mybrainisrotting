@@ -18,6 +18,8 @@ mostly above spawn in south park area but this might not always be where you can
 
 uhh im either around market or reg/dw area or in the bakery with with vro ! (@Auggiecore)
 
+or hanging out with marji in the pjsk area or around the market
+
 <img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/>
 
 ermmm i lowkey think thats it uhh more info in my rentry or patreon if im not rmking them
