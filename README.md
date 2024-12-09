@@ -24,9 +24,10 @@ ermmm i lowkey think thats it uhh more info in my rentry or patreon if im not rm
 
 ![image](https://github.com/user-attachments/assets/5a22294b-11e1-468e-9dc9-f8de70f20cd7)
 
-<img src="https://i.pinimg.com/736x/47/c6/ab/47c6ab6b76d618bc44683c64f3157a87.jpg" alt="This may contain: a drawing of a person eating french fries"/>
 
-![image](https://github.com/user-attachments/assets/c27049c8-0c16-4ca2-812c-b0b2d3c2018c)
+<img src="https://i.pinimg.com/736x/52/75/52/52755280afd35eccff48f3bae6cb30d1.jpg" alt="Story pin image"/>
+
+![image](https://github.com/user-attachments/assets/cd531892-f28a-4717-ab8e-28e4ca1412e6)
 
 
 
