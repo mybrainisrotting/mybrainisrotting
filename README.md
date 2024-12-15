@@ -1,35 +1,39 @@
-![image](https://github.com/user-attachments/assets/315552ae-62c7-4517-b360-df12c5f8f799) 
 
-![image](https://github.com/user-attachments/assets/8f4bf245-5040-42dc-aef7-abef212a1265)
+![image](https://github.com/user-attachments/assets/ff923901-2852-427e-bb88-0d8f808f30cb)
+
+heyy im alex orrr void go by both
+
+![image](https://github.com/user-attachments/assets/299446c5-e301-4284-902d-bdcde8e8becf)![image](https://github.com/user-attachments/assets/519f9f18-5ba6-4a14-be28-a0b5383684c1)
+
+feel free to int or c+h i dont mind if you want to int whisper as i might be afk or hanging out with friends, you are welcome to vent if you feel upset
+
+![image](https://github.com/user-attachments/assets/0da63d05-afb4-4544-819c-d3696b5f3efa)![image](https://github.com/user-attachments/assets/de94364d-dbad-495d-8e14-bea63538a112)
+
+you can find me at spawn in south park,market,reg/dw area,bakery
+
+![image](https://github.com/user-attachments/assets/270a4c4d-fdc5-4a1e-a37a-17697b8ae642)![image](https://github.com/user-attachments/assets/37581a45-7825-40de-994a-3f995cb2430f)
+
+theres more info in my patreon if you wanna check that out if im not rmking it ofc
+
+![image](https://github.com/user-attachments/assets/31d67935-0034-42a9-826a-0f356dbef9be)
+
+![image](https://github.com/user-attachments/assets/5b31c0b0-fb20-48fc-8be9-f4017656772b)![image](https://github.com/user-attachments/assets/3dda9063-69b3-4cab-b4d4-d5d770894329)
+
+feel free to check out my friends they lowkeeyy awezum
+
+![image](https://github.com/user-attachments/assets/f8a4fc45-ea78-412c-a33d-baf8e718a9bc)![image](https://github.com/user-attachments/assets/e1b9846e-d1f6-46b7-88fa-3e29716b7c36)
+
+![image](https://github.com/user-attachments/assets/62305c22-f478-4636-8033-c2e02978b77a)
 
 
-where can you find me?
-
-<img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/><img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/><img src="https://media.tenor.com/XGaUujrkMzUAAAAj/divider.gif" alt="a row of red and white lines on a white background ."/>
+![image](https://github.com/user-attachments/assets/fd168f77-e07d-49c5-93e7-4a4f8854284f)
 
 
 
-mostly above spawn in south park area but this might not always be where you can find me 
-
-<img src="https://media.tenor.com/hf6Y0QFVrsEAAAAj/blood-drip-blood.gif" alt="a row of red spikes on a white background ."/><img src="https://media.tenor.com/hf6Y0QFVrsEAAAAj/blood-drip-blood.gif" alt="a row of red spikes on a white background ."/>
-
-![image](https://github.com/user-attachments/assets/ed3c0dcc-68dd-4f0a-9759-5f4ab93233ce)
 
 
-uhh im either around market or reg/dw area or in the bakery with with vro ! (@Auggiecore)
-
-or hanging out with marji in the pjsk area 
-
-<img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/><img src="https://media.tenor.com/mRnyHAbfnxQAAAAj/rain-divider.gif" alt="a row of red icicles hanging from a white wall ."/>
-
-ermmm i lowkey think thats it uhh more info in my rentry or patreon if im not rmking them
-
-![image](https://github.com/user-attachments/assets/5a22294b-11e1-468e-9dc9-f8de70f20cd7)
 
 
-<img src="https://i.pinimg.com/736x/52/75/52/52755280afd35eccff48f3bae6cb30d1.jpg" alt="Story pin image"/>
-
-![image](https://github.com/user-attachments/assets/cd531892-f28a-4717-ab8e-28e4ca1412e6)
 
 
 
