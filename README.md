@@ -25,8 +25,12 @@ feel free to check out my friends they lowkeeyy awezum
 
 ![image](https://github.com/user-attachments/assets/62305c22-f478-4636-8033-c2e02978b77a)
 
+<img src="https://media.discordapp.net/attachments/1068757828149452874/1317692704204783727/image.png?ex=675f9c76&amp;is=675e4af6&amp;hm=3b79c0e30cdb8b7f7c6dfa6bd7acf16d21ba4fc7a9f176026f02a377cce46375&amp;=&amp;format=webp&amp;quality=lossless" alt="Image"/>
 
 ![image](https://github.com/user-attachments/assets/fd168f77-e07d-49c5-93e7-4a4f8854284f)
+
+
+
 
 
 
