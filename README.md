@@ -4,6 +4,8 @@ heyy void or alex most of yall know me,
 
 INT PLSS whisp me cuz i might be offtab most of the time or with friends. i love talking, i love talking so much that it becomes annoying; c+h is fine if my name doesnt say dniuc i might back away sometimes if you are a stranger 
 
+can take inspo just dnc (my styles change alot my bi polar ahh)
+
 if i like hanging out w/you alot then i might get clingy this happens rarely since i hang out with abunch of people at one time but if i do get a little too clingy and it gets out of hand tell me i wont be upset
 
 uh thats it more info in rentry + pronouns page
