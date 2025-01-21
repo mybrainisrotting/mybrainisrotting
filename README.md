@@ -1,12 +1,13 @@
-heyy void or alex most of yall know me,
+![image](https://github.com/user-attachments/assets/9ebcdcd5-479e-4b31-8e7e-1ec40ddc7708)
+![image](https://github.com/user-attachments/assets/6c4b4169-4a9d-47af-81db-61287aa00ac4)
 
-<img src="https://gifcity.carrd.co/assets/images/gallery38/770e4873.png?v=d7271437" alt="3"/>
+umm im void 0r alex
+anywaays please int yall guys dont be scared i like to talk blah blah you can vent if you are feeling upset i am free to listen doesnt matter if your stranger ill listen and try
+to provide advice ^^. i dont care if you take inspo just dont copy and we all good.
+if i dont like you then it will be visible cuz i will be mean but this rare and happens never. I got bad anger issuses take meds and stuff. 
 
-INT PLSS whisp me cuz i might be offtab most of the time or with friends mostly hanging out w tes or syd + awezum ppl . i love talking, i love talking so much that it becomes annoying; c+h is fine if my name doesnt say dniuc
+guys my name says it all my brain is rotting of all the media i consume 5 hours a day, sighh haters .. try me 😈😈/j
 
-can take inspo just dnc (my styles change alot, bi polar ig)
+![image](https://github.com/user-attachments/assets/b5af1e35-1267-41bb-8be0-e8a372c1ea2b)
+![image](https://github.com/user-attachments/assets/9589d8e8-0ec5-4679-947f-af1efe5c0485)
 
-i get clingy if i like hanging out with you.
-
-
-<img src="https://i.pinimg.com/736x/04/63/38/0463381a0eff0948710343c76ab81ce4.jpg" alt="This may contain: a drawing of a person playing with a ball in the grass near a smiling sun"/>
