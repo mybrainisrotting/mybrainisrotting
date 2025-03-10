@@ -1,8 +1,12 @@
 
-you cann take inspo just dnc i change styles alot anyways
+void or alex , inspo is welcomed just dnc
+you are free to int or vent i dont mind, i always try to give good advice
 
-feel free to talk to me whisper me cuz probably offtab, i might be super awkward though so. if you want to you could vent to me im always ok to listen and try to give good advice.
-think thats it bye bye
+
+<img src="https://media1.tenor.com/m/ukHCsv8gudkAAAAC/bad-and-crazy-bad-and-crazy-sleep.gif" alt="a couple of men laying on a bed with one wearing a red shirt"/>
+
+
+
 
 
 
