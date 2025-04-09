@@ -8,7 +8,8 @@
 
 
 ⋆.˚
-[Rentry](https://rentry.co/voidershopss) ────୨ৎ──── [Pronouns page](https://en.pronouns.page/@void0991)⋆.˚
+[Rentry](https://rentry.co/voidershopss) ────୨ৎ──── [Pronouns page](https://en.pronouns.page/@void0991) ────୨ৎ────
+
 
 
 
