@@ -1,9 +1,14 @@
 
-void or alex , inspo is welcomed just dnc
-you are free to int or vent i dont mind, i always try to give good advice, c+h is always ok 
 
 
-<img src="https://media1.tenor.com/m/ukHCsv8gudkAAAAC/bad-and-crazy-bad-and-crazy-sleep.gif" alt="a couple of men laying on a bed with one wearing a red shirt"/>
+
+
+
+<img src="https://media.tenor.com/Cbuf3MNragQAAAAM/tt.gif" alt="a man in a suit and tie is standing in a dark room and looking at the camera ."/>
+
+
+⋆.˚
+[Rentry](https://rentry.co/voidershopss) ────୨ৎ──── [Pronouns page](https://en.pronouns.page/@void0991)⋆.˚
 
 
 
