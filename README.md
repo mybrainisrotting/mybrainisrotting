@@ -9,6 +9,10 @@
 
 ⋆.˚
 [Rentry](https://rentry.co/voidershopss) ────୨ৎ──── [Pronouns page](https://en.pronouns.page/@void0991) ⋆.˚
+                                                 ​ 
+                                                     ​                                              
+‎‎  
+​​​​                                     ⋆˚𝜗𝜚˚⋆    [ata book](https://voider.atabook.org/) ⋆˚
 
 
 
