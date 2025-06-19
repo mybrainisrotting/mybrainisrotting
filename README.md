@@ -2,7 +2,8 @@
 
 
 
-<img src="https://media1.tenor.com/m/FiqEiUt-AA0AAAAC/rockstar-cookie-cookie-run-kingdom.gif" alt="a cartoon character with white hair is holding a red and black guitar .."/>!
+![image](https://github.com/user-attachments/assets/f543548d-58f9-42d5-a23c-690f964b0763)
+
 
 
 
