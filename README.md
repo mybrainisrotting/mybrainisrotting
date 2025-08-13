@@ -2,7 +2,7 @@
 
 
 
-![image](https://github.com/user-attachments/assets/f543548d-58f9-42d5-a23c-690f964b0763)
+<img src="https://upload.wikimedia.org/wikipedia/en/9/94/Sublime_Self-Titled.jpg" alt="Sublime (album) - Wikipedia"/>
 
 
 
