@@ -1,17 +1,8 @@
-c+h and int please
 
-[Prounouns page](https://en.pronouns.page/@void0991) + [other pronouns page](https://pronouns.cc/@televisioncomedy)  |  [rentry](https://rentry.co/voidershopss) | [ata book](https://voider.atabook.org/)
+void , 8teen , he/they.
 
+![17585813363817916659993377861560](https://github.com/user-attachments/assets/12ca735f-0244-430a-a200-edb5b511ed1f)
 
-<img src="https://media1.tenor.com/m/MYJrOTbhfQAAAAAC/squid-game-squid-game-2.gif" alt="a group of people wearing green uniforms with numbers on them"/>
+heyyy.. most of the time im offtab so w2i also c + h freely pleaseplease , no dni list, if i sit w u cuz you have c + h in your name just know i find you super cool 
 
-
-
-
-
-
-
-
-
-
-
+[pronouns page](https://en.pronouns.page/@void0991) | [second pronouns page](https://pronouns.cc/@televisioncomedy)
