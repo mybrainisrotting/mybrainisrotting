@@ -1,7 +1,6 @@
+Alex , he/they , 8teen
 
-void , 8teen , he/they.
-
-![17585813363817916659993377861560](https://github.com/user-attachments/assets/12ca735f-0244-430a-a200-edb5b511ed1f)
+![17590225096456610428322113485217](https://github.com/user-attachments/assets/e69e105c-5b6c-4f4a-af82-48ad172328d5)
 
 heyyy.. most of the time im offtab so w2i also c + h freely pleaseplease , no dni list, if i sit w u cuz you have c + h in your name just know i find you super cool 
 
