@@ -7,4 +7,4 @@ weirdos
 
 super talkative and freak, feel free to c*h 
 
-also if yoi need to vent even though i dont know you that well idm
+also if you need to vent even though i dont know you that well idm
