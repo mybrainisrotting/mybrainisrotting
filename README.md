@@ -1,7 +1,5 @@
 dni
 
-under 16
-
 weirdos
 _________
 
