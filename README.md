@@ -1,4 +1,4 @@
-
+$\color{#C7C5D0}{\text{"hey babe"}}$
 
 <img width="736" height="736" alt="Untitled17_20260523234743" src="https://github.com/user-attachments/assets/79241657-2bcf-4db0-ba39-b21518f8f34a" > 
 
@@ -10,4 +10,4 @@ Interest
  pixeldrink, flamingo, south park, mouthwashing, kdramas, benoftheweek, jjk, mha, scream (I LOVE BILLY AND STU SO MUCH), anything with matthew lillard in it or skeet ulrich, the hundred line, and like so much more im into everything trust
  
 ------------------
-[pronouns page](https://en.pronouns.page/@void0991) • [ata book](https://bakudekuslime.atabook.org/) 
+[pronouns page](https://en.pronouns.page/@void0991) • [ata book](https://bakudekuslime.atabook.org/) • [rentry](https://rentry.co/mybrainisrotting)
