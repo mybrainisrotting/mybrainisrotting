@@ -2,7 +2,7 @@ $\color{#C7C5D0}{\text{"hey babe"}}$
 
 <img width="736" height="736" alt="Untitled17_20260523234743" src="https://github.com/user-attachments/assets/79241657-2bcf-4db0-ba39-b21518f8f34a" > 
 
-  c*h appreciated, int anytime
+  c*h appreciated, int anytime, if you have c+h in your name EXPECT me to sit with you
 
   basic dni
 
