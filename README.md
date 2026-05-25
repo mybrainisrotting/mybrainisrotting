@@ -6,6 +6,8 @@ $\color{#C7C5D0}{\text{"hey babe"}}$
 
   basic dni
 
+  only follow people i think are cool
+
   mirou mirou mirou 🤤🤤
   
 ------------------
