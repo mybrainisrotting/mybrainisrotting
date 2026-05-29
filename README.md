@@ -1,7 +1,7 @@
 
 $\color{#C7C5D0}{\text{"us"}}$
 
-
+![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=˚˖𓍢ִ໋❀&color=C7C5D0)
 
 <img width="498" height="279" alt="17800448341448085839524792826206" src="https://github.com/user-attachments/assets/3a507d9f-b938-4cbc-bd88-4b32c8e53afc" />
 
