@@ -21,7 +21,7 @@ $\color{#C7C5D0}{\text{"us"}}$
   
 
 
-   [mirou](https://rentry.co/mirxuu) mirou mirou 🤤
+   [mirou](https://rentry.co/mirxuu) mirou mirou 🤤 look at my cuties rentry awww
   
 ------------------
 [pronouns page](https://en.pronouns.page/@void0991) • [ata book](https://bakudekuslime.atabook.org/) • [rentry](https://rentry.co/mybrainisrotting)
