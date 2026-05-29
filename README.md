@@ -3,13 +3,18 @@ $\color{#C7C5D0}{\text{"us"}}$
 
 
 
-
-
-<img width="736" height="414" alt="06017fab785abf15c47298d327172533" src="https://github.com/user-attachments/assets/0a27f569-23fb-4325-9c5f-7a80f0b2234e" />
-
+<img width="498" height="279" alt="17800448341448085839524792826206" src="https://github.com/user-attachments/assets/3a507d9f-b938-4cbc-bd88-4b32c8e53afc" />
 
 
 
+
+
+
+
+ 
+  
+  
+  
   c+h appreciated, int anytime, if you have c+h in your name EXPECT me to sit with you
 
   basic dni
