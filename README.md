@@ -27,6 +27,5 @@ $\color{#D43B74}{\text{"us"}}$
 
 
    [mirou](https://rentry.co/mirxuu) mirou mirou 🤤 look at my cuties rentry awww
-  
-------------------
 
+   <img width="230" height="30" alt="1491" src="https://github.com/user-attachments/assets/a2e14aeb-ff58-4bcc-8595-3865aa5ca0d2" />
