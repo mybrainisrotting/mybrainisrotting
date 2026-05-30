@@ -1,14 +1,15 @@
 
-$\color{#C7C5D0}{\text{"us"}}$
+$\color{#D43B74}{\text{"us"}}$
 
-![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=˚˖𓍢ִ໋❀&color=C7C5D0)
+![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=˚˖𓍢ִ໋❀&color=D43B74)
 
 
  [pronouns page](https://en.pronouns.page/@void0991) • [ata](https://bakudekuslime.atabook.org/) • [rentry](https://rentry.co/mybrainisrotting) • 
 [strawpage](https://toxictoxicyaoi.straw.page/)
 
-<img width="498" height="279" alt="17800448341448085839524792826206" src="https://github.com/user-attachments/assets/3a507d9f-b938-4cbc-bd88-4b32c8e53afc" />
 
+
+   <img width="99" height="56"   alt="17801637999416394488889038747030" src="https://github.com/user-attachments/assets/ae82c89e-981f-4d0d-9925-4996d9f78ae7" />
 
 
 
