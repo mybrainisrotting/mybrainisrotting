@@ -1,7 +1,7 @@
 
 $\color{#7A2EAD}{\text{"us"}}$
 
-![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=minions&color=7A2EAD)
+![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=7A2EAD)
 
 
  [pronouns page](https://en.pronouns.page/@void0991) • [ata](https://bakudekuslime.atabook.org/) • [rentry](https://rentry.co/mybrainisrotting) • 
