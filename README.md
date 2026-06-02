@@ -18,9 +18,7 @@ $\color{#7A2EAD}{\text{"us"}}$
 
 
  $\color{#7A2EAD}{\text{c*h anytime}}$
-ㅤㅤㅤㅤㅤㅤㅤ
-  basic dni
-  
+ㅤㅤㅤㅤㅤㅤㅤ  15 below dni and basic dni
 
 
 
