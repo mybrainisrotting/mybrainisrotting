@@ -1,4 +1,4 @@
-
+I
 $\color{#7A2EAD}{\text{"us"}}$
 
 ![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=7A2EAD)
@@ -21,3 +21,6 @@ $\color{#7A2EAD}{\text{"us"}}$
 
 
    -----------
+<img width="1080" height="686" alt="Screenshot_20260602_135324_Chrome" src="https://github.com/user-attachments/assets/1dd8af16-1041-4337-aa1a-3f089585f8b9" /> 
+
+THANK YOU @yaoiliker ITS SO BEATIFUL ITS US
