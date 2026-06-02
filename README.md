@@ -23,6 +23,6 @@ $\color{#7A2EAD}{\text{"us"}}$
   
 
 
-   [mirou](https://rentry.co/mirxuu) mirou mirou 🤤 look at my cuties rentry awww
+
 
    -----------
