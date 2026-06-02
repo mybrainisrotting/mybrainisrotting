@@ -15,9 +15,8 @@ $\color{#7A2EAD}{\text{"us"}}$
 ㅤㅤ"silence yourself! and unfunny joke 😒"
 
 
-
  $\color{#7A2EAD}{\text{c*h anytime}}$
-ㅤㅤㅤㅤㅤㅤㅤ  15 below dni
+ㅤ  15 below and weirdos dni
 
 
 
