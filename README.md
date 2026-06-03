@@ -1,11 +1,11 @@
-I
+
 $\color{#7A2EAD}{\text{"us"}}$
 
 ![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=7A2EAD)
 
 
    [ata](https://bakudekuslime.atabook.org/) 𓈒 [rentry](https://rentry.co/mybrainisrotting) 𓈒
-[strawpage](https://toxictoxicyaoi.straw.page/) 𓈒 [gunslol](https://guns.lol/mybrainisrotting)
+[strawpage](https://toxictoxicyaoi.straw.page/) 
 
 
 
@@ -17,7 +17,6 @@ $\color{#7A2EAD}{\text{"us"}}$
 
  $\color{#7A2EAD}{\text{c*h anytime}}$
 ㅤ  15 below and weirdos dni
-
 
 
    -----------
