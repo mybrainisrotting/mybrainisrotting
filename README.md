@@ -4,9 +4,8 @@ $\color{#7A2EAD}{\text{"us"}}$
 ![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=7A2EAD)
 
 
-   [ata](https://bakudekuslime.atabook.org/) 𓈒 [rentry](https://rentry.co/mybrainisrotting) 𓈒
+   [ata](https://bakudekuslime.atabook.org/) 𓈒 [rentry](https://rentry.co/mybrainisrotting) 𓈒 [pronouns page](https://en.pronouns.page/@void0991) 𓈒
 [strawpage](https://toxictoxicyaoi.straw.page/) 
-
 
 
    
