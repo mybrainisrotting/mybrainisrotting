@@ -9,7 +9,7 @@ $\color{#B19248}{\text{"us"}}$
 
 <img width="735" height="727" alt="a1ffa60a57d5895063b585d862dfcac8" src="https://github.com/user-attachments/assets/326a52a5-0082-4c5c-b1e7-dfbd966e0f87" />
 
-im "weird" but your're stalking 😅/ targeted.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  
 
 
  $\color{#B19248}{\text{c*h anytime}}$
