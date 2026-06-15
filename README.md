@@ -6,7 +6,7 @@ $\color{#F66603}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
 ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
      $\color{#ffa836}{\text{sіgᥒ}}$  $\color{#F66603}{\text{ᥲ𝗍ᥲ}}$ $\color{#f04202}{\text{⠀ ⠀♱ ⠀}}$   ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍󠀠󠀠󠀠󠀠[ᥲ𝗍ᥲ](https://bakudekuslime.atabook.org/) 𓈒 [rᥱᥒ𝗍rᥡ](https://rentry.co/mybrainisrotting) 𓈒 [⍴r᥆ᥒ᥆ᥙᥒs ⍴ᥲgᥱ](https://en.pronouns.page/@void0991) 
 
-<img width="499" height="499" alt="594-removebg-preview" src="https://github.com/user-attachments/assets/b76d8705-3d03-4d38-bbcb-c483b3419dd8" />
+<img width="290" height="290" alt="594-removebg-preview" src="https://github.com/user-attachments/assets/b76d8705-3d03-4d38-bbcb-c483b3419dd8" />
 
 $\color{#ffa836}{\text{(˶˃ ᵕ ˂˶)}}$️️️️ㅤㅤㅤㅤㅤㅤㅤ
 $\color{#F66603}{\text{ᥲr𝗍 @іzᥙᥴᥲkᥱ ᥆ᥒ 𝗍𝗍}}$ 
