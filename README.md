@@ -10,8 +10,7 @@ $\color{#ffa836}{\text{"moid"}}$
 <img width="250" height="250" alt="17814852842623846388642382648850" src="https://github.com/user-attachments/assets/1a83dd17-92fc-45d6-a595-8e508f1f1332" />
 
 
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jimd.carr88&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=e87c00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  
 
 
