@@ -1,3 +1,4 @@
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Cream+Soda&pause=1000&color=F04202&width=435&lines=i+hate+you;i+love+you;id+rather+suppress+you" alt="Typing SVG" /></a>
 $\color{#ffa836}{\text{rᥱᥲძ rᥱᥒ𝗍rᥡ ᑲᥡі}}$
 
 $\color{#F66603}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
