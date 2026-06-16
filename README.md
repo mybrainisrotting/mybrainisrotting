@@ -21,5 +21,9 @@ $\color{#F66603}{\text{ᥲr𝗍 @іzᥙᥴᥲkᥱ ᥆ᥒ 𝗍𝗍}}$
 ㅤ  $\color{#ffa836}{\text{ᥕᥱіrძ᥆s}}$
 $\color{#F66603}{\text{α𐓣ᑯ}}$ $\color{#F04202}{\text{15 ᥙᥒძᥱr ძᥒі}}$
 
+--------------
+
+**public shame tsk tsk**.. imagine color picking from my goat [jaden](https://github.com/yubelsrevenge) 
+<img width="331" height="113" alt="17816267878108386683249753374624" src="https://github.com/user-attachments/assets/645b8b96-a682-4560-99f1-67350a7dae2c" />
 
 
