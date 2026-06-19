@@ -1,5 +1,5 @@
-
-
+[mᥡ ᥣ᥆᥎ᥱ mᥲіᥣ](https://rentry.co/voidslovemail)
+------
 $\color{#FEFDFB}{\text{rᥱᥲძ rᥱᥒ𝗍rᥡ ᑲᥡі}}$
 
 $\color{#DCAEBB}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
