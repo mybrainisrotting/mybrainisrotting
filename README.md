@@ -5,6 +5,8 @@ $\color{#A52A2A}{\text{rᥱᥲძ rᥱᥒ𝗍rᥡ ᑲᥡі}}$
 $\color{#fffff}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
 
 ![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=A52A2A)
+
+(better veiwed mobile)
 ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ
 <img width="360" height="270" alt="17820716847427906033569477112277" src="https://github.com/user-attachments/assets/e38c2db6-85e6-4f65-a950-f0b543f195ef" />
 
