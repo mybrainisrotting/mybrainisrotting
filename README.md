@@ -1,29 +1,30 @@
 [mᥡ ᥣ᥆᥎ᥱ mᥲіᥣ](https://rentry.co/voidslovemail)
 ------
-$\color{#FEFDFB}{\text{rᥱᥲძ rᥱᥒ𝗍rᥡ ᑲᥡі}}$
+$\color{#A52A2A}{\text{rᥱᥲძ rᥱᥒ𝗍rᥡ ᑲᥡі}}$
 
-$\color{#DCAEBB}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
+$\color{#fffff}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
 
-![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=D9A9B6)
-ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
-     $\color{#FEFDFB}{\text{sіgᥒ}}$  $\color{#DCAEBB}{\text{ᥲ𝗍ᥲ}}$ $\color{#D9A9B6}{\text{⠀ ⠀♱ ⠀}}$   ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍󠀠󠀠󠀠󠀠[ᥲ𝗍ᥲ](https://bakudekuslime.atabook.org/) 𓈒 [rᥱᥒ𝗍rᥡ](https://rentry.co/mybrainisrotting) 𓈒 [⍴r᥆ᥒ᥆ᥙᥒs ⍴ᥲgᥱ](https://en.pronouns.page/@void0991) 
+![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=A52A2A)
+ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ
+<img width="360" height="270" alt="17820716847427906033569477112277" src="https://github.com/user-attachments/assets/e38c2db6-85e6-4f65-a950-f0b543f195ef" />
+
+$\color{#A52A2A}{\text{void}}$ ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ㅤ‍‍‍‍‍‍‍‍‍he , himㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ †
+‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍19 y/o ‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍
+
+ㅤㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤ‍‍‍i love low budget horror films
 
 
-<img width="593" height="493" alt="Untitled10_20260618155354" src="https://github.com/user-attachments/assets/74ce6ea1-0170-4ab9-a55e-f600dd1cc578" />
+----
+$\color{#A52A2A}{\text{a}}$[ta](https://bakudekuslime.atabook.org/) 𓈒 re $\color{#A52A2A}{\text{n}}$[try](https://rentry.co/mybrainisrotting) 𓈒 $\color{#A52A2A}{\text{p}}$ rono[ᥙᥒs page](https://en.pronouns.page/@void0991) 
 
-$\color{#FEFDFB}{\text{(˶˃ ᵕ ˂˶)}}$️️️️ㅤㅤㅤㅤㅤㅤㅤ
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jimd.carr88&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff94b2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jimd.carr88&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=A52A2A&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  
 
 
- $\color{#FEFDFB}{\text{ᥴ * һ ᥲᥒᥡ𝗍іmᥱ}}$
-ㅤ  $\color{#FEFDFB}{\text{ᥕᥱіrძ᥆s}}$
-$\color{#FDCAEBB}{\text{α𐓣ᑯ}}$ $\color{#D9A9B6}{\text{15 ᥙᥒძᥱr ძᥒі}}$
+ $\color{#A52A2A}{\text{ᥴ * һ ᥲᥒᥡ𝗍іmᥱ}}$
+ㅤ  $\color{#ffffff}{\text{ᥕᥱіrძ᥆s}}$
+$\color{#FDCAEBB}{\text{α𐓣ᑯ}}$ $\color{#A52A2A}{\text{15 ᥙᥒძer dni}}$
 
---------------
 
-**public shame tsk tsk**.. imagine color picking from my goat [jaden](https://github.com/yubelsrevenge) 
-<img width="331" height="113" alt="17816267878108386683249753374624" src="https://github.com/user-attachments/assets/645b8b96-a682-4560-99f1-67350a7dae2c" />
 
 
