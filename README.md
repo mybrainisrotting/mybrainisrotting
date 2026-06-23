@@ -11,7 +11,7 @@ $\color{#fffff}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
 <img width="360" height="270" alt="17820716847427906033569477112277" src="https://github.com/user-attachments/assets/e38c2db6-85e6-4f65-a950-f0b543f195ef" />
 
 $\color{#A52A2A}{\text{void}}$ ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ㅤ‍‍‍‍‍‍‍‍‍he , himㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍ †
-‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍‍‍19 y/o ‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍
+‍‍‍‍‍‍‍‍‍ㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤgayㅤ‍‍‍‍‍‍‍‍‍
 
 ㅤㅤ‍‍‍‍‍‍‍‍‍ㅤㅤㅤㅤㅤ‍‍‍i love low budget horror films
 
@@ -24,8 +24,8 @@ $\color{#A52A2A}{\text{a}}$[ta](https://mybrainirotting.atabook.org/) 𓈒 re $\
 
 
  $\color{#A52A2A}{\text{ᥴ * һ ᥲᥒᥡ𝗍іmᥱ}}$
-ㅤ  $\color{#ffffff}{\text{ᥕᥱіrძ᥆s}}$
-$\color{#FDCAEBB}{\text{α𐓣ᑯ}}$ $\color{#A52A2A}{\text{15 ᥙᥒძer dni}}$
+ㅤ  $\color{#ffffff}{\text{basic dni}}$
+$\color{#FDCAEBB}{\text{α𐓣ᑯ}}$ $\color{#A52A2A}{\text{i just block who i dont like}}$
 
 
 
