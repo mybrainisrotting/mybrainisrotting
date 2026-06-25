@@ -4,7 +4,7 @@ $\color{#ADD8E6}{\text{rᥱᥲძ rᥱᥒ𝗍rᥡ ᑲᥡі}}$
 
 $\color{#36454F}{\text{ძrᥡ 𝗍ᥱ᥊𝗍ᥱrs іᥕᥱᥴ}}$
 
-![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=twins&color=ADD8E6)
+![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=😽&color=ADD8E6)
 
 (better veiwed mobile)
 ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ
