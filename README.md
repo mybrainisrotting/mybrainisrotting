@@ -1,3 +1,5 @@
+best viewed mobile
+  
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=mybrainisrotting&label=👀&color=161616)
 
 ㅤㅤ<p align="center">ㅤ[新book](https://mybrainirotting.atabook.org/)
